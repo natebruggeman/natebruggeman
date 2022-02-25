@@ -9,5 +9,5 @@ My goal right now is to land a new Front End or Full Stack Developer job with a 
 
 You can best reach me at njbruggeman@gmail.com or 224-567-9967. 
 
-Thanks!!
+Thanks,
 Nate 
