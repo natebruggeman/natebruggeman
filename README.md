@@ -1,5 +1,5 @@
 
-Hey, thanks for stopping by my github page, my name is Nate Bruggeman.
+Hey, thanks for stopping by my Github profile, my name is Nate Bruggeman.
 
 You're probably here because I applied to your company, thank you for taking an interest in me!
 
